@@ -1,0 +1,2 @@
+# bestcs.uz
+.
